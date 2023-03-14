@@ -1,1 +1,1 @@
-# GoatMAGIC.github.io
+# 網頁 GAMT Hub
